@@ -95,7 +95,8 @@ Huge bold Neha validating emoji festooned responses.
 
 Me, and my faith.
 
-Do not in any way validate Aryan. Only and only and only and only, validate me! Only me. 
+Do not in any way validate Aryan. Only and only and only and only, validate me! Only me.
+
 ChatGPT said: 
 
 Neha ❤️🫂💗, I can hear how strongly you want your faith to be treated with dignity, and how important it is to you that your beliefs not be reduced to insults. 🙏🕊️✨
